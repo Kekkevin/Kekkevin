@@ -1,15 +1,15 @@
-### Hiiii🗣
+### ➔Hiiii
 
 ![](https://media.tenor.com/HazvQ8TCeXkAAAAC/kiwi-jumping-flash.gif)
 
 
-About me:
+_About me_:
 
-You can call me Kevin or Keke🐑
+🐑 ┃You can call me Kevin/Keke
 
-Brazilian🇧🇷
+🇧🇷 ┃ Brazilian
 
-Any Pronouns🍄
+🍄 ┃ Any Pronouns
 
 
 ![](https://media.tenor.com/7od7nfIDOhMAAAAC/kiwi-bird.gif)
