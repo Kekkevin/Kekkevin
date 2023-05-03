@@ -1,6 +1,6 @@
 ### Hiiii🗣
 
-![](https://user-images.githubusercontent.com/132471932/235960395-8e9fc27a-2fc8-47cc-8324-a1dfc68c3ec9.png)
+![](https://media.tenor.com/HazvQ8TCeXkAAAAC/kiwi-jumping-flash.gif)
 
 
 About me:
@@ -12,4 +12,4 @@ Brazilian🇧🇷
 Any Pronouns🍄
 
 
-![](https://tenor.com/bcyXN.gif)
+![](https://media.tenor.com/7od7nfIDOhMAAAAC/kiwi-bird.gif)
